@@ -11,4 +11,4 @@ Here are some ideas to get you started:-->
 
 📫 How to reach me: mobile phone: 385-722-1047
 
-⚡ Fun fact: I can play the saxophone
+⚡ Fun fact: I play the saxophone
